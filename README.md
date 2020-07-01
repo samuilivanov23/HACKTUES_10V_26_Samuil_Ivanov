@@ -1,3 +1,3 @@
 DONE
 
-Adidas krasowki
+Adidas 
